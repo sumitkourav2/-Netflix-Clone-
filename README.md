@@ -42,6 +42,15 @@ CSS3
 📸 Screenshots
 ![netflex1](https://github.com/user-attachments/assets/3ef13588-305a-43cb-86bd-e9d489d5ab25)
 
+![netflex2](https://github.com/user-attachments/assets/5c20287d-f223-43ad-ad90-458dfd00b37e)
+
+![netflex3](https://github.com/user-attachments/assets/71b8881f-33ef-4bd4-8169-def11e2bdcbd)
+
+![netflex4](https://github.com/user-attachments/assets/e9382217-1b16-4208-8db3-1e9ec4d99ff8)
+
+
+
+
 
 
 
